@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on Petro<br>Check out cns.gg
+I'm currently working on Petro<br>Check out https://cns-studios.com
 
 
 ## 🌐 Socials:
